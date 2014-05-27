@@ -1,4 +1,4 @@
-Meaningful-Living
+Meaningful Living
 =================
 
 Meaningful Living
